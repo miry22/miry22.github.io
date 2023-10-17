@@ -1,1 +1,0 @@
-# miry22.github.io
